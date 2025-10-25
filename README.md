@@ -1,3 +1,3 @@
-[Twitter](x.com/basum)
+[Twitter](https://x.com/basum)
 
-[Website](mashybasker.github.io)
+[Website](https://mashybasker.github.io)
